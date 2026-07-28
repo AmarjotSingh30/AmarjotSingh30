@@ -1,4 +1,4 @@
-# Hi there, I'm Jerry 👋
+# Hi there, I'm Amarjot Singh 👋
 
 ## 👨‍💻 Who am I?
 
